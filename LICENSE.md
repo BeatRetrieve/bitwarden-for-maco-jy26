@@ -1,4 +1,4 @@
-
+updated Bitwarden for macOS Module | identity-theft-protection + safe-browsing is the best Bitwarden for macOS module, featuring identity-theft-protection and safe-browsing.
 
 
 
